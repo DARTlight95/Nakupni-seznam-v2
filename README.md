@@ -1,0 +1,1 @@
+# Nakupni-seznam-v2
